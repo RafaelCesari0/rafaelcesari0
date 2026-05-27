@@ -1,1 +1,1 @@
-Conta secundaria para projetos da faculdade
+Conta secundaria
